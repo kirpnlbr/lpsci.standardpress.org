@@ -1,4 +1,4 @@
-## PRODUCTIVITY DONE BACKWARDS
+## PRODUCTIVITY DONE BACKWARDS:
 How Toxic Productivity Negatively Impacts People During the Pandemic
 
 Since the beginning of the CoVid-19 pandemic, most of our stress levels have reached an all-time high. From trying to find a way to make ends meet, to attempting to wrap our heads around the unpredictability that surrounds us; we begin to lose ourselves into either idleness or work. Both sides of this spectrum are obviously unhealthy, but it seems society finds the latter more acceptable.
@@ -39,6 +39,9 @@ Self-discipline also plays an important role in this process. It is okay to fini
 In a world turned upside down, we are left with unpredictability and darkness. We turn to work and lose ourselves into doing, struggling to win back some semblance of control over our lives. However, that is not what is happening. We are not winning anything by losing ourselves to work.
 
 True control is not found on either side of the spectrum between idleness and work. We fear to land on the former side, giving in to indolence and procrastination—and those fears are valid—but we need to see the shadow that hides behind the seeming brightness we, as a society, see of the other side. True control lies in the healthy middle ground.
+
+*Photo Credits: [Wrike.co](https://www.wrike.com/blog/ways-to-combat-toxic-productivity/)*
+
 
 **References:**
 
