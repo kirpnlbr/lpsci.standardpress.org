@@ -16,7 +16,9 @@ I asked Sir Gayas about their time at Las Piñas East and he shared, “The scho
 
 One of the other things Sir Gayas and I talked about was the school's logo. He shared, "The neuron represents the brain so that the school works at its best. The dendrites are parts of the neuron that signify constant communication with our stakeholders. The pioneer teachers and the administrators are represented by the rays coming from the torch. The rays also represent the different intelligences that the internal stakeholders possess."
 
-Students coming from the more current batches of LPSci, like me, may have heard that the eight dendrites in the LPSci logo signify the eight pioneer teachers; however, Sir Gayas debunked this information saying, "Incidentally, it represents the 8 pioneer teachers when the logo was designed but it was not on purpose."
+![lpsci logos.png](https://cdn.hashnode.com/res/hashnode/image/upload/v1648451915921/FwykVbMWs.png)
+
+If you came from one of the older batches of LPSci, like me, you may have heard... that the eight dendrites in the LPSci logo signify the eight pioneer teachers; however, Sir Gayas debunked this information saying, "Incidentally, it represents the 8 pioneer teachers when the logo was designed but it was not on purpose."
 
 If you look closely at the two logos, you’ll see that the virtues at the bottom part have changed. According to Sir Gayas, the virtues were changed when Ma’am Cuevas, the third school head, decided to revise the school’s mission and vision to be anchored with Dep-Ed’s mission and vision during their in-service training. 
 
@@ -31,6 +33,10 @@ Speaking of uniforms, have you ever complained about ours? Be honest.
 I know that LPSci student uniforms can seem boring with their beige and white color; however, it carries certain meaning to their design. When asked about our uniforms, Sir Gayas shared that the original uniforms they had designed were far from what we have today. “Ang unang design ng uniform natin ay blue ang collar na parang sailor type.” he shared. This design was rejected by the SDS or the Schools Division Superintendent and was changed to beige to symbolize the simple way of living. 
 
 **Fun fact #3; in the earliest batches of LPSci, the girls’ uniforms didn’t have collars to put more emphasis on simplicity. **
+
+![BATCH 2009 CLASS PICTURE.jpg](https://cdn.hashnode.com/res/hashnode/image/upload/v1648451577377/vW0_skpfs.jpg)
+*Batch 2009-2010*
+
 
 ### Undying Hymn of Excellence
 
@@ -56,4 +62,4 @@ I have been in LPSci since 2017, and I’ve seen so much change - changes made b
 
 So many things have changed in LPSci since its establishment in 2009. However, the one thing that has not changed is its motto: *“A bright mind is nothing without a humble heart."* That is perhaps the biggest life lesson LPSci has taught me. 
 
-***Photo Credits: Jabez Zape***
+**Photo Credits: Jabez Zape**
