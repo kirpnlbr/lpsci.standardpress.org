@@ -104,7 +104,7 @@ For both exhibitors and attendees, this leaves much to be desired as it was diff
 
 Similar incidents about ventilation and signal congestion have been made, however this has been an underlying issue for massive events held at SMX. The resting area for the event could’ve been utilized more as it used one hall, but a dedicated space separated from the con is good step in the right direction.
 
-Despite not being perfect, CONQuest 2022 was a massive success for all parties involved, and this wouldn’t have been possible without the student volunteers and crew members making it all possible. This event would most likely be followed up in the foreseeable future, as [#CQ2023](https://twitter.com/PopiSSB/status/1552262857114275842?s=20&t=uzNI3BzTUfiGJoj2ihC83Q) is already being teased by AcadArena’s co-founder, Justin Banusing.
+Despite not being perfect, CONQuest 2022 was a massive success for all parties involved, and this wouldn’t have been possible without the student volunteers and crew members making it all run smoothly. This event would most likely be followed up in the foreseeable future, as [#CQ2023](https://twitter.com/PopiSSB/status/1552262857114275842?s=20&t=uzNI3BzTUfiGJoj2ihC83Q) is already being teased by AcadArena’s co-founder, Justin Banusing.
 
 %[https://twitter.com/PopiSSB/status/1552262857114275842]
 
