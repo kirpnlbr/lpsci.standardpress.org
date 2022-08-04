@@ -29,7 +29,7 @@ Con-goers outside were exposed to the scorching heat and long wait times, howeve
 To start off Day 1, the opening ceremony for the Alliance Games (AllG) was held, where AcadArena Alliance students played in the finals of various Esports titles, such as League of Legends, Valorant, Mobile Legends: Bang Bang, COD Mobile, and Wild Rift, being played live on stage by Campus Esports teams. 
 
 ![IMG_20220723_095220.jpg](https://cdn.hashnode.com/res/hashnode/image/upload/v1659611727880/RMAiPhPAD.jpg align="center")
->  ###### Introduction of New Era University's "Paradigm Esports." 
+>  ###### Introduction of New Era University's "Paradigm Verendus." 
 
 If that didn’t pique your interest, on the second floor there was a community panel being held by Mobile Legends champions JDanerie “Wise” Del Rosario and Johnmar “OhMyV33nus” Villaluna, or more commonly known as “V33Wise” in the community. These players won the M3 World Championships representing the Philippines last year, which makes it all worthwhile to tune in as you see these “legends” in the flesh.
 
