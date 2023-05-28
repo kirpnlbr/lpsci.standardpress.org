@@ -11,15 +11,15 @@ tags: convention, music, technology, gaming
 
 In partnership with Globe, CONQuest 2023 will hold its first ever in-house Music Night with a full line-up of musical acts that will surely liven up the nights of the event.
 
-![Image](https://pbs.twimg.com/media/FwdfK3BaUAIO3mv?format=jpg&name=medium align="left")
-
 To celebrate the recent partnership between Globe and CONQuest, Music Night prices get slashed in half from its original price of P5,000 down to now only P2,500, offering fans more affordable prices to witness an incredible lineup of performances.
+
+![Image](https://pbs.twimg.com/media/FwdfK3BaUAIO3mv?format=jpg&name=medium align="left")
 
 Existing ticket holders that bought the passes before the price drop will be refunded the P2,500, as well as being provided an additional Music Night pass to give to a fellow friend attending CONQuest.
 
-![CONQuest Festival 2023 ☁️ on Twitter: "Our presenting partner @enjoyGLOBE  just sponsored half of Music Night! Enjoy listening to all these amazing  artists at HALF OFF! All existing holders of the Music](https://pbs.twimg.com/media/FwztzbcXoAEGovq?format=jpg&name=4096x4096 align="left")
-
 Among the headliners for the paid music night will be renowned South Korean indie-pop band The Rose, alongside homegrown artists such as James Reid, Oh Flamingo!, Carousel Casualties, Autotelic, Timmy Albert and Lesha.
+
+![CONQuest Festival 2023 ☁️ on Twitter: "Our presenting partner @enjoyGLOBE  just sponsored half of Music Night! Enjoy listening to all these amazing  artists at HALF OFF! All existing holders of the Music](https://pbs.twimg.com/media/FwztzbcXoAEGovq?format=jpg&name=4096x4096 align="left")
 
 Now with Music Night passes being more affordable, CONQuest is fulfilling its promise to bring an extraordinary experience to attendees.
 
